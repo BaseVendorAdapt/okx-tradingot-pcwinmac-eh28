@@ -1,4 +1,4 @@
-# 
+# Ultimate okx trading bot add-ons for Mac OS | Updated okx trading bot add-ons for PC Windows. Featuring API integration and multi-dex aggregation — optimized for maximum performance on every platform.
 
 
 
